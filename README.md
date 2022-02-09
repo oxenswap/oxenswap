@@ -1,4 +1,4 @@
-Hello my name Alex E. Campain|my pseudonymous>> "NeoMetaVerse/oxenswap" thank you for viewing the profile.
+Hello my name Alex E. Campain|my pseudonymous>> "NeoMetaVerse/Oxenswap" thank you for viewing the profile.
 
 With a 12+ year background in leadership, marketing management, SEO|SEM, website design, HTML, social media marketing & various programming low and high level languages; I have developed a thorough understanding of new emerging technologies and I have the grasp the intricacies of excellent communication skills both verbally and written.
 
