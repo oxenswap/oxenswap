@@ -1,18 +1,4 @@
-Hello my name Alex E. Campain|my pseudonymous>> "NeoMetaVerse/Oxenswap" thank you for viewing the profile.
-
-With a 12+ year background in leadership, marketing management, SEO|SEM, website design, HTML, social media marketing & various programming low and high level languages; I have developed a thorough understanding of new emerging technologies and I have the grasp the intricacies of excellent communication skills both verbally and written.
-
-I have immense exprience in developing A.I chatbot, botAutomation, dApps, DEFI, smart contracts, crypto cions|tokens, flashloans & Arbitrage bots utilizing (DLT) distributed ledger technology|Blockchain.
-
-I have also recently turned my attention to the intricacies of wealth building as well as living a better life by introducing new emerging disruptive technologies which brings real life value across the modern & developing world.
-
-I'm very well adroitness in problem solving, growth hacking, budget control, business finances (DEFI) Blockchain Apps, (DLT) and blockchain development, road mapping, IT leadership, J. S, Solidity, Python 3|4 & making other leaders reach their maximum potential.
-
-I also have in depth experience building and scaling product marketing for rapid growth especially with SaaS companies.
-
-Here are some of my attributes:
-
-♦I Have Experience In Design Management Of Blockchain DEFI Ecosystems With Empasis In Repair & Maintenance Management ♦I Have Experience In Website Developement, DNS SETUP/Configurations, HTML METATAGS and Website Optimization ♦I Have Experience In Business "Improvement Development" Cost Reduction Road-Mapping And Software Develooment ♦I Have Experience In Supply Chain & eCo,Msic, DEX,DEFI Apps System Software Developement And Deployment ♦I Have Experience In Developing Smart Contracts, DEFI Apps or "dApps" Using Solidity, J.S & Python 3|4 ♦I Have Experience In Remote System Software Administration, Remote Team Developement And Motivation ♦I Have Excellent Customer Relationship Management Skills And General Customer Service Administration ♦I Have Experience In Training (Team Leadership Development) Methodologies, Procedures And Protocols
+I Have Experience In Design Management Of Blockchain DEFI Ecosystems With Empasis In Repair & Maintenance Management ♦I Have Experience In Website Developement, DNS SETUP/Configurations, HTML METATAGS and Website Optimization ♦I Have Experience In Business "Improvement Development" Cost Reduction Road-Mapping And Software Develooment ♦I Have Experience In Supply Chain & eCo,Msic, DEX,DEFI Apps System Software Developement And Deployment ♦I Have Experience In Developing Smart Contracts, DEFI Apps or "dApps" Using Solidity, J.S & Python 3|4 ♦I Have Experience In Remote System Software Administration, Remote Team Developement And Motivation ♦I Have Excellent Customer Relationship Management Skills And General Customer Service Administration ♦I Have Experience In Training (Team Leadership Development) Methodologies, Procedures And Protocols
 
 ✔AWARD-WINNING LEADER: With a consistent history delivering outstanding productivity improvement and cost reduction solutions. Generate intellectual and business intelligence capital by simultaneously evolving corporate performance improvement; business community responsiveness and cost reduction programs. Inspirational resource with a track record of operational efficiency improvement excellence significantly impacting on the bottom-line.
 
