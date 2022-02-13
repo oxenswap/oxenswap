@@ -8,7 +8,7 @@ I Have Experience In Design Management Of Blockchain DEFI Ecosystems With Empasi
 
 ✔PROJECT SPEARHEAD WITH: “big picture” focus; combines knowledge of new & emerging ERP methodologies and systems along with financials to establish a competitive edge and grow bottom-line profitability.
 
-(By Invitation ONLY) Know More About Us at: https://optopteam.com Sign Up>> https://otrim.ai/AIRevolution I’m interested in developing a one stop blockchain DEFI app which would include NFT minting, DEX, saving, loans and NFT sales.
+(By Invitation ONLY) Know More About Us at: https://optopteam.com Sign Up>> https://otrim.ai/SoftwareDevelopment I’m interested in developing a one stop blockchain DEFI app which would include NFT minting, DEX, saving, loans and NFT sales.
 
 🌱 I’m ALWAYS learning new updated fuunctions, variables and objects in Solidity and in many other languages in the ever fast changing world of programmimg langauges.
 
